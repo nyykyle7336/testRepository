@@ -1,3 +1,3 @@
 # testRepository
 
-{JU5T_G3TT1NG_WARM3D_UP}
+{The_robots_will_be_activated_on_Saturday}
